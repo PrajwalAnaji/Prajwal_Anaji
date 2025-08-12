@@ -1,8 +1,7 @@
-# Prajwal_Anaji
+# 👨‍💻 Prajwal Anaji
 
 # 👋 Hey there, I’m Prajwal Anaji  
-**Data Analyst | Machine Learning Enthusiast | Turning Raw Data into Real-World Impact**  
-
+**Data Analyst | BI & Analytics Specialist | Data Storyteller**
 ---
 
 ## 🚀 About Me  
