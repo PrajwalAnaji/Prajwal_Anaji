@@ -1,6 +1,4 @@
 # 👨‍💻 Prajwal Anaji
-
-# 👋 Hey there, I’m Prajwal Anaji  
 **Data Analyst | BI & Analytics Specialist | Data Storyteller**
 ---
 
