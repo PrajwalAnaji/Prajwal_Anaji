@@ -48,8 +48,7 @@ For me, analytics isn’t just about numbers — it’s about creating **clarity
 
 ## 🤝 Let’s Connect  
 📧 **Email:** [anajiprajwal@gmail.com](mailto:anajiprajwal@gmail.com)  
-🔗 **LinkedIn:** [linkedin.com/in/prajwal-anaji](https://linkedin.com/in/prajwal-anaji)  
-💻 **GitHub:** [github.com/prajwal-anaji](https://github.com/prajwal-anaji)  
+🔗 **LinkedIn:** [[linkedin.com/in/prajwalanaji](https://linkedin.com/in/prajwalanaji)]  
 
 ---
 
